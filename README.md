@@ -1,1 +1,1 @@
-List of ised IPs by Tiktok
+List of used IPs by Tiktok
